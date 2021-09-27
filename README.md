@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ep1cUser
+- 👀 I’m interested in ...live streaming music from reddit. that's all 
+- 🌱 I’m currently learning ... to live stream and practice singing/playing at the same time. Also to strengthen improv ability :)
